@@ -1,2 +1,2 @@
-# website_designs
-I'm trying to design websites
+# I design websites
+You are free to download and use my codes 😁
